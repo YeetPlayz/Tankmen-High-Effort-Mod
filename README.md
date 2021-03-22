@@ -1,1 +1,1 @@
-To Install All you have to do is unzip the file and you play funkin and boom you have Tankmen with the exclusive song Ugh
+All you have to do is extract the file press the adobe flash logo and you run anyway and you have the whitty test
